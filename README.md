@@ -1,1 +1,1 @@
-# https://its7080.github.io/reg/
+# https://its7080.github.io/reg.html
